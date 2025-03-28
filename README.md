@@ -1,5 +1,5 @@
 # phoebe's github <3
-go kitty go !! darianne likes warriors
+go kitty go !!
 <br>
 <img src="https://github.com/user-attachments/assets/2f599469-b6ae-4fd9-9110-24694d1a21e1" width="200" height="auto">
 <img src="https://github.com/user-attachments/assets/78aad81b-2cf4-42a0-9b18-6aba82449e28" width="200" height="auto">
